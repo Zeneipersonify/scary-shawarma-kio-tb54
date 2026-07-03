@@ -1,4 +1,4 @@
-#  
+#  scary shawarma kiosk smart Script offers the most advanced scary shawarma kiosk Script, with speed and auto-sell. Perfect for dominating any match.
 
 
 
